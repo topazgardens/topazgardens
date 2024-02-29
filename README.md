@@ -1,1 +1,1 @@
-![](https://cdn.discordapp.com/attachments/1056659012411723866/1165094558401560591/IMG_8076.jpg?ex=654599dd&is=653324dd&hm=9a0b70aabee5263a8bd7beb80d7805649918f9e62ebadb5d78648ce1489ccda2&)
+![](https://file.garden/ZXiEM8PK2V9jjFu2/IMG_8076.jpg)
